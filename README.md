@@ -1,1 +1,1 @@
-# Lies mich, Trottel!
+# Lies mich, Obertrottel!
