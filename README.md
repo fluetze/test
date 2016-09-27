@@ -1,4 +1,5 @@
 Lies mich, Obertrottel!
 =======================
 
-:dog:
+:dog: vs. :cat:
+
